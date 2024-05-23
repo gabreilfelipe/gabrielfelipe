@@ -15,3 +15,4 @@ Meu nome é Gabriel
   ![](https://tenor.com/pt-BR/view/playing-music-mei-lee-turning-red-music-class-playing-flute-gif-23989138)
   ![](https://tenor.com/pt-BR/view/walking-anime-gif-18249661084189965779)
   ![](https://tenor.com/pt-BR/view/stephen-curry-gif-25553261)
+ ![](https://media.giphy.com/media/AHZ0oQ3oWURK8SFZjd/giphy.gif?cid=790b76112v0gyfm4030oijirz5bz0qtuqsxz8krplp5ckgq7&ep=v1_gifs_search&rid=giphy.gif&ct=g)
